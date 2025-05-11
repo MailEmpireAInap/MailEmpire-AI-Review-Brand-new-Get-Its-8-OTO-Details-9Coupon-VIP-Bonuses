@@ -8,7 +8,78 @@
 <p class="" data-start="1128" data-end="1195">But the moment I got my hands on MailEmpire AI, everything changed.</p>
 <p class="" data-start="1197" data-end="1606">From the first login, I could feel this was built differently. It was smooth, lightning-fast, and didn’t overwhelm me with cluttered menus. In just minutes, I uploaded my list (yes, even a cold list!), let the AI generate high-converting emails, and hit send. The result? My open rates shot up by 35%, my click-throughs doubled, and for the first time in months, I felt in control of my email marketing again.</p>
 <p class="" data-start="1608" data-end="1664">No tech headaches. No writing blocks. Just pure results.</p>
+# 📧 MailEmpire AI – Get Full Funnel + Bonuses!
 
+## IMPORTANT:  
+Before clicking any OTO links, **make sure to access the Front End (FE) link first** to ensure my affiliate link is tracked for your bonus eligibility.
+
+## To unlock **MailEmpire AI FE**, type:  
+`warriorplus[dot]com/o2/a/msx872c/0/g`  
+Use this special code at checkout: **MAIL2**  
+**Affiliate Link:**  **614944 – mobikill2016** (Make sure to click this link first for your bonuses)
+
+---
+
+## To unlock **MailEmpire AI Pro**, type:  
+`mailempireai[dot]com/pro/`  
+Use this special code at checkout: **PRODISCOUNT10**
+
+---
+
+## To unlock **MailEmpire AI Automation**, type:  
+`mailempireai[dot]com/automation/`  
+Use this special code at checkout: **AUTOMATEDISCOUNT20**
+
+---
+
+## To unlock **MailEmpire AI Inbox Booster**, type:  
+`mailempireai[dot]com/inbox-booster/`  
+Use this special code at checkout: **INBOXDISCOUNT30**
+
+---
+
+## To unlock **MailEmpire AI DFY**, type:  
+`mailempireai[dot]com/dfy/`  
+Use this special code at checkout: **DFYDISCOUNT10**
+
+---
+
+## To unlock **MailEmpire AI Agency**, type:  
+`mailempireai[dot]com/agency/`  
+Use this special code at checkout: **AGENCYDISCOUNT20**
+
+---
+
+## To unlock **MailEmpire AI Reseller**, type:  
+`mailempireai[dot]com/reseller/`  
+Use this special code at checkout: **RESELLERDISCOUNT10**
+
+---
+
+## To unlock **MailEmpire AI MegaSuite**, type:  
+`mailempireai[dot]com/megasuite/`  
+Use this special code at checkout: **MEGASUITE30**
+
+---
+
+## 🎁 Check Out My Bonus Page  
+To view all the exclusive bonuses, type:  
+`williamreview[dot]com/mailempire-ai`
+
+---
+
+## 💥 Special Bonus Offer from Me:  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Check out my bonus vault:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Complete your purchase using any of the URLs above.  
+2. Send your **receipt ID** to: `support@williamreview[dot]com`  
+3. You’ll receive all bonuses within **12 hours** – just make sure to confirm by email.
 <h2 class="" data-start="1666" data-end="1710">Why MailEmpire AI Is a Total Game-Changer</h2>
 <p class="" data-start="1712" data-end="1910">Let’s get one thing clear—this is not your typical autoresponder. <strong data-start="1778" data-end="1795">MailEmpire AI</strong> is powered by next-gen AI technology designed to smash through the barriers that have been holding marketers back.</p>
 
@@ -68,3 +139,75 @@ If you’re ready to finally unlock real growth…</p>
 <p class="" data-start="5134" data-end="5246">Then don’t wait. Grab MailEmpire AI today. I guarantee you’ll look back and wonder why you didn’t switch sooner.</p>
 <p class="" data-start="5248" data-end="5365">This isn’t just a tool. It’s your ticket to building your email empire—with power, freedom, and unstoppable momentum.</p>
 <p class="" data-start="5367" data-end="5425"><strong data-start="5367" data-end="5425">100% Recommended. Get it now before the price goes up.</strong></p>
+# 📧 MailEmpire AI – Get Full Funnel + Bonuses!
+
+## IMPORTANT:  
+Before clicking any OTO links, **make sure to access the Front End (FE) link first** to ensure my affiliate link is tracked for your bonus eligibility.
+
+## To unlock **MailEmpire AI FE**, type:  
+`warriorplus[dot]com/o2/a/msx872c/0/g`  
+Use this special code at checkout: **MAIL2**  
+**Affiliate Link:**  **614944 – mobikill2016** (Make sure to click this link first for your bonuses)
+
+---
+
+## To unlock **MailEmpire AI Pro**, type:  
+`mailempireai[dot]com/pro/`  
+Use this special code at checkout: **PRODISCOUNT10**
+
+---
+
+## To unlock **MailEmpire AI Automation**, type:  
+`mailempireai[dot]com/automation/`  
+Use this special code at checkout: **AUTOMATEDISCOUNT20**
+
+---
+
+## To unlock **MailEmpire AI Inbox Booster**, type:  
+`mailempireai[dot]com/inbox-booster/`  
+Use this special code at checkout: **INBOXDISCOUNT30**
+
+---
+
+## To unlock **MailEmpire AI DFY**, type:  
+`mailempireai[dot]com/dfy/`  
+Use this special code at checkout: **DFYDISCOUNT10**
+
+---
+
+## To unlock **MailEmpire AI Agency**, type:  
+`mailempireai[dot]com/agency/`  
+Use this special code at checkout: **AGENCYDISCOUNT20**
+
+---
+
+## To unlock **MailEmpire AI Reseller**, type:  
+`mailempireai[dot]com/reseller/`  
+Use this special code at checkout: **RESELLERDISCOUNT10**
+
+---
+
+## To unlock **MailEmpire AI MegaSuite**, type:  
+`mailempireai[dot]com/megasuite/`  
+Use this special code at checkout: **MEGASUITE30**
+
+---
+
+## 🎁 Check Out My Bonus Page  
+To view all the exclusive bonuses, type:  
+`williamreview[dot]com/mailempire-ai`
+
+---
+
+## 💥 Special Bonus Offer from Me:  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Check out my bonus vault:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Complete your purchase using any of the URLs above.  
+2. Send your **receipt ID** to: `support@williamreview[dot]com`  
+3. You’ll receive all bonuses within **12 hours** – just make sure to confirm by email.
